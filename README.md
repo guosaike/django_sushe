@@ -1,9 +1,6 @@
 代码为作者2024年全新开发，全新ui，全新框架+技术，源码+论文，等你添加
 
-点我直接购买系统：https://ake999.com/26.html
-点我直接购买系统：https://ake999.com/26.html
-点我直接购买系统：https://ake999.com/26.html
-
+**点我直接购买系统：https://ake999.com/26.html**
 
 需要代码，联系微信 python_kk或者qq：976870170（备注github，不备注不通过）
 
